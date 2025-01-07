@@ -25,5 +25,7 @@ Explore the Blogs
 Whether you’re a homeowner, interior designer, or builder, our blogs are tailored to meet your needs and provide valuable insights. Dive in and explore articles that empower you to make informed decisions for your home.
 
 Connect with Us
+
 Website: https://mykhp.com/
+
 Whatsapp: +91 89715 27999
